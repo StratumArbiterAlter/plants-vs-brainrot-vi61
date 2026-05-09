@@ -1,4 +1,4 @@
-
+Experience plants vs brainrots like never before with secret Script for plants vs brainrots, the #1 Script. Includes esp and no cooldown for
 
 
 
